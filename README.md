@@ -1,1 +1,1 @@
-![ezgif-1-25567c86a5]([https://github.com/user-attachments/assets/be431ec9-d360-4940-8bbd-f8fffc8a1717](https://s1.ezgif.com/tmp/ezgif-1-25567c86a5.gif))
+![ox_target gif](https://github.com/user-attachments/assets/d2841f3e-233b-43ee-ab05-bc255421e5a5)
