@@ -1,2 +1,1 @@
-![ox gif](https://github.com/user-attachments/assets/5b3191dc-1ca2-40ae-a860-17fa8146a872)
-
+![Zrzut ekranu 2024-08-28 151033](https://github.com/user-attachments/assets/b49dac28-6619-4997-a2d6-4c297bb50c62)
